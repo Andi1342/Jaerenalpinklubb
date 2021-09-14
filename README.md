@@ -1,3 +1,4 @@
 # jaerenalpinklubb
 New Website
-heheehhe xd 
+informasjons side for Jærenalpinklubb
+
